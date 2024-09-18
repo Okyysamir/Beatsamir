@@ -68,9 +68,7 @@ AND FOR ANY COMPLAINTS OR CONTACT BOT OPERATOR
 
 DEVELOPER : Samir died 
 
-🟣Facebook Account Link: 
-
-https://www.facebook.com/www.xnxx.com169
+🟣Facebook Account Link: https://www.facebook.com/profile.php?id=61566071759091
 
 🔵WHATSAPP NUMBER: 1746xxx499
 
